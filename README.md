@@ -22,4 +22,4 @@
 - 💡 I'm always looking for creative ideas and new ways to express myself  
 - 🗣️ I like public speaking and participating in school activities  
 - 📷 I also enjoy photography and creating visual content  
-- 🐾 I feel connected to cats—they're curious, elegant, and independent like me!
+- 🐾 I feel connected to cats—they're curious, elegant, and independent like ME!
